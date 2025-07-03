@@ -2,4 +2,4 @@
 
 　 me and her frfr not clickbait
             ><
- * made by me, do not use without permission pls (:
+ * made by me (:
