@@ -1,3 +1,2 @@
-<img width="736" height="736" alt="1000323493" src="https://github.com/user-attachments/assets/c11cc1eb-f542-4387-865c-d30ebf335d63" />
+<img width="736" height="736" alt="1000323982" src="https://github.com/user-attachments/assets/63b882ff-5974-4e73-ab52-ddfcca5540de" />
 
-life is when ichisaki
