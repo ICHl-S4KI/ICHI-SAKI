@@ -1,6 +1,8 @@
+# 100 REASONS WHY I LIKE ICHISAKI
+
 ![1000321230](https://github.com/user-attachments/assets/cf682918-96bc-4345-aff5-1f289bde5249)
 
-# 100 REASONS WHY I LIKE ICHISAKI
+
 
 1. their dynamic
 2. their chemistry
