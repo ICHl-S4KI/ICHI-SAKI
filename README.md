@@ -109,8 +109,20 @@
 50. so like
 <img width="2520" height="1440" alt="1000325179" src="https://github.com/user-attachments/assets/73cb91b8-ba8d-4feb-a92c-1129a698d196" />
 
+51. hahwhhedhhag (also counts as polyneed ig but cmon. saki leaning on ichika's shoulder specifically)
+<img width="736" height="736" alt="1000323194" src="https://github.com/user-attachments/assets/8ea9e735-1c29-417b-b468-5f80e9c87741" />
 
-51. i just realized how hard it is to list 100 things about one specific thing so i'll pick this back up and finish it when i come up with more reasons
+52. i know that covers don't necessarily have any meaning in canon but their ikanaide cover is just sooo them. i was so obsessed with it back in 2023 and i'd constantly put it on repeat because i just loved it sososo much. ikanaide ichisaki cover i will always love you.
+
+53. ggaaayyyyy
+<img width="546" height="853" alt="1000326048" src="https://github.com/user-attachments/assets/ed07537e-486d-4b86-a40f-0f8ef4dfb928" />
+
+54.
+<img width="1080" height="395" alt="1000326049" src="https://github.com/user-attachments/assets/ab46e7d8-d6bd-4b1c-9bac-5088803b6cd5" />
+
+
+
+55. i just realized how hard it is to list 100 things about one specific thing so i'll pick this back up and finish it when i come up with more reasons
 
 
 
